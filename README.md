@@ -1,7 +1,7 @@
 ### Olá!! Eu sou o Marx Nascimento 👋
 
 
-- 🌱 Estundando Linguagem de programação 
+- 🌱 Estudando Linguagem de programação 
 - 📫 Contate-me no e-mail: marxalcino@gmail.com 
 - 😄 Pronouns: ele/dele
 
